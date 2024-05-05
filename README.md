@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ConstantinosSakkas
+- 👀 I’m interested in the IT field and i love learning something new about technology everyday.
